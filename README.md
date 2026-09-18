@@ -4,6 +4,11 @@
 
 ---
 
+<img width="709" height="1600" alt="WhatsApp Image 2026-09-18 at 10 29 12 AM" src="https://github.com/user-attachments/assets/d33234e1-f257-4393-b55b-8afe75cc315d" />
+<img width="709" height="1600" alt="WhatsApp Image 2026-09-18 at 10 29 13 AM" src="https://github.com/user-attachments/assets/2fe8dbe2-4ded-4325-a5f4-23712d9ff773" />
+<img width="709" height="1600" alt="WhatsApp Image 2026-09-18 at 10 29 12 AM (2)" src="https://github.com/user-attachments/assets/72958183-72ba-44cb-b7f9-d02669475ec5" />
+<img width="709" height="1600" alt="WhatsApp Image 2026-09-18 at 10 29 12 AM (1)" src="https://github.com/user-attachments/assets/9154cf03-3724-4807-998b-d230f5298595" />
+
 ## 🌟 Key Features
 
 ### 1. 🎙️ Urdu Voice Advisor
